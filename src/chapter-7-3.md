@@ -1,4 +1,4 @@
-Chapter 6: Mindful Self-Care: Building resilience and self-compassion through mindful self-care
+Building resilience and self-compassion through mindful self-care
 ===============================================================================================
 
 In this chapter, we will explore how to build resilience and self-compassion through mindful self-care. By prioritizing our own well-being and practicing self-compassion, we can become better equipped to navigate life's challenges and deepen our connections with others.

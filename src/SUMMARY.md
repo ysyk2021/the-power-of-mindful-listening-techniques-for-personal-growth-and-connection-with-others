@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful listening for personal growth and connection with others](chapter-1-2.md)
 - [Chapter 1: Understanding Mindful Listening](chapter-2.md)
@@ -36,8 +35,4 @@
   - [Nurturing healthy relationships through mindful communication](chapter-9-1.md)
   - [Developing empathy and compassion towards others](chapter-9-2.md)
   - [Healing and repairing relationships through mindful listening](chapter-9-3.md)
-- [Chapter 9: Conclusion](chapter-10.md)
-  - [Reflection on the power of mindful listening](chapter-10-1.md)
-  - [Final thoughts and recommendations for continuing the journey of personal growth and connection with others through mindful listening](chapter-10-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindfulness: Mindful Breathing and Body Scan Exercises
+Mindful Breathing and Body Scan Exercises
 =================================================================================
 
 Mindfulness is a powerful practice that can enhance personal growth and deepen connections with others. In this chapter, we will explore two techniques for cultivating mindfulness: mindful breathing and body scan meditation.

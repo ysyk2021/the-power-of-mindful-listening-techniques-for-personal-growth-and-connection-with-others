@@ -1,4 +1,4 @@
-Chapter 8: Cultivating Compassionate Relationships: Developing empathy and compassion towards others
+Developing empathy and compassion towards others
 ====================================================================================================
 
 In this chapter, we will explore the importance of developing empathy and compassion towards others in cultivating compassionate relationships. By practicing empathy and compassion, we can improve our communication skills, deepen our connections with others, and promote personal growth and well-being.

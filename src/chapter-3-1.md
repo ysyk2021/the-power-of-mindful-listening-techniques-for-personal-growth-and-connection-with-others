@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindfulness: Techniques for Cultivating Mindfulness
+Techniques for Cultivating Mindfulness
 ==============================================================================
 
 Mindfulness is a powerful practice that can enhance personal growth and deepen connections with others. In this chapter, we will explore techniques for cultivating mindfulness.

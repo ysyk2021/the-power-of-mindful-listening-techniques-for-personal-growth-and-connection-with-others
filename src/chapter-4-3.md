@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Listening: Strategies for cultivating a regular mindful listening practice
+Strategies for cultivating a regular mindful listening practice
 ==========================================================================================================================
 
 In this chapter, we will explore strategies for cultivating a regular mindful listening practice. By integrating mindful listening into our daily routines, we can develop our communication skills, deepen our relationships with others, and promote personal growth and well-being.

@@ -1,4 +1,4 @@
-Chapter 8: Cultivating Compassionate Relationships: Healing and repairing relationships through mindful listening
+Healing and repairing relationships through mindful listening
 =================================================================================================================
 
 In this chapter, we will explore how mindful listening can be used to heal and repair damaged relationships. Whether it's a romantic relationship, friendship, or family dynamic, applying mindful listening techniques can help us deepen our understanding of others, demonstrate empathy and compassion, and create a more supportive and collaborative environment.

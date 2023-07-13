@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Listening in Daily Life: Benefits of mindful listening for reducing conflict and promoting cooperation
+Benefits of mindful listening for reducing conflict and promoting cooperation
 ==================================================================================================================================
 
 In this chapter, we will explore the benefits of applying mindful listening in daily life, specifically for reducing conflict and promoting cooperation. By practicing mindful listening in our interactions with others, we can improve our communication skills, deepen our connections, and create a more harmonious and supportive environment.

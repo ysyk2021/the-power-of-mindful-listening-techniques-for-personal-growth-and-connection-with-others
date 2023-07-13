@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Listening in Daily Life: Letting go of judgment and negative emotions through mindful listening
+Letting go of judgment and negative emotions through mindful listening
 ===========================================================================================================================
 
 In this chapter, we will explore how to apply mindful listening in daily life to let go of judgment and negative emotions. By cultivating a non-judgmental and compassionate approach to our interactions with others, we can deepen our connections and promote personal growth.

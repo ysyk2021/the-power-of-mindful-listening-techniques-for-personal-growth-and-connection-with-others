@@ -1,4 +1,4 @@
-Chapter 6: Mindful Self-Care: Benefits of Mindful Self-Care for Mental and Physical Health
+Benefits of Mindful Self-Care for Mental and Physical Health
 ==========================================================================================
 
 In addition to improving listening skills and enhancing personal relationships, practicing mindful listening can also have significant benefits for mental and physical health. In this chapter, we will explore the benefits of mindful self-care.

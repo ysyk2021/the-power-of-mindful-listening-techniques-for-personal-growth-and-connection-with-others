@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Listening: Reflective listening exercises
+Reflective listening exercises
 =========================================================================================
 
 In this chapter, we will explore reflective listening exercises as a technique for developing mindful listening skills. Reflective listening involves actively listening to the speaker, then repeating or paraphrasing what was said to ensure understanding and promote deeper connection.

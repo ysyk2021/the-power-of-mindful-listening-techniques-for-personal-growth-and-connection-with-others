@@ -1,4 +1,4 @@
-Chapter 6: Mindful Self-Care: Using Mindful Listening to Manage Stress and Anxiety
+Using Mindful Listening to Manage Stress and Anxiety
 ==================================================================================
 
 Mindful listening is not only a powerful tool for enhancing personal relationships, but it can also be used as a form of mindful self-care to manage stress and anxiety. In this chapter, we will explore techniques for using mindful listening to improve mental wellbeing.

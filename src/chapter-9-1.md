@@ -1,4 +1,4 @@
-Chapter 8: Cultivating Compassionate Relationships: Nurturing healthy relationships through mindful communication
+Nurturing healthy relationships through mindful communication
 =================================================================================================================
 
 In this chapter, we will explore how cultivating compassionate relationships through mindful communication can improve our connections with others and promote personal growth and well-being. By practicing mindful listening and communicating with empathy and compassion, we can deepen our relationships and create a more harmonious and supportive environment.

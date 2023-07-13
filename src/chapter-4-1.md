@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Listening: Mindfulness-based techniques for developing active listening skills
+Mindfulness-based techniques for developing active listening skills
 ==============================================================================================================================
 
 In this chapter, we will explore mindfulness-based techniques for developing active listening skills. By practicing these techniques, we can deepen our understanding of others, cultivate empathy and compassion, and create a more supportive and collaborative environment.

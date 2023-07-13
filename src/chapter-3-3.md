@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindfulness: Strategies for incorporating mindfulness into daily life
+Strategies for incorporating mindfulness into daily life
 ================================================================================================
 
 In this chapter, we will explore strategies for incorporating mindfulness into our daily lives. By practicing mindfulness regularly, we can deepen our connections with others, promote personal growth, and find greater fulfillment in our lives.

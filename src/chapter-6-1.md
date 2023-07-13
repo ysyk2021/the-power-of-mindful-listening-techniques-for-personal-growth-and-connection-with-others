@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles to Mindful Listening: Common barriers to practicing mindful listening
+Common barriers to practicing mindful listening
 =====================================================================================================
 
 In this chapter, we will explore common barriers that prevent us from practicing mindful listening and strategies for overcoming them.
