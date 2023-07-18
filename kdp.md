@@ -8,7 +8,6 @@ Through real-world examples and evidence-based research, readers will learn how 
 
 Whether you are a business leader, educator, or simply someone looking to improve your personal relationships, The Power of Mindful Listening offers valuable insights and strategies that can help you become a better listener and communicator. By developing these essential skills, you can enhance your personal and professional relationships, foster greater empathy and understanding, and ultimately achieve greater personal growth and fulfillment.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
