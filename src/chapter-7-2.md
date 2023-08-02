@@ -1,4 +1,4 @@
-Chapter 10: Benefits of Mindful Self-Care for Mental and Physical Health
+Benefits of Mindful Self-Care for Mental and Physical Health
 ========================================================================
 
 In this chapter, we will explore the numerous benefits of incorporating mindful self-care practices into our lives for improved mental and physical health. By nurturing ourselves through self-care and mindfulness, we can enhance our overall well-being and create a foundation for personal growth and connection with others.

@@ -1,4 +1,4 @@
-Chapter 5: Mindful Breathing and Body Scan Exercises
+Mindful Breathing and Body Scan Exercises
 ====================================================
 
 In this chapter, we will explore the power of mindful breathing and body scan exercises as tools for cultivating presence, reducing stress, and deepening our connection with ourselves and others. Through intentional awareness of our breath and body sensations, we can enhance our listening skills, promote personal growth, and foster meaningful connections with those around us.

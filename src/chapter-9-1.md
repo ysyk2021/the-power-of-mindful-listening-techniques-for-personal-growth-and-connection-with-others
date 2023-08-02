@@ -1,4 +1,4 @@
-Chapter 4: Nurturing Healthy Relationships through Mindful Communication
+Nurturing Healthy Relationships through Mindful Communication
 ========================================================================
 
 In this chapter, we will explore how mindful communication can contribute to nurturing healthy relationships. Mindful listening and effective communication go hand in hand, as they create a foundation of understanding, trust, and empathy. By incorporating mindful communication techniques into our interactions, we can foster harmonious connections and promote personal growth within our relationships.

@@ -1,4 +1,4 @@
-Chapter 8: Common Barriers to Practicing Mindful Listening
+Common Barriers to Practicing Mindful Listening
 ==========================================================
 
 In this chapter, we will explore common barriers that can hinder our practice of mindful listening. While mindful listening has numerous benefits for personal growth and connection with others, various obstacles may arise along the way. By understanding these barriers, we can proactively address them and cultivate a more effective and consistent mindful listening practice.

@@ -1,4 +1,4 @@
-Chapter 6: Letting Go of Judgment and Negative Emotions through Mindful Listening
+Letting Go of Judgment and Negative Emotions through Mindful Listening
 =================================================================================
 
 In this chapter, we will explore how mindful listening can help us let go of judgment and negative emotions. By practicing attentive and non-judgmental listening, we can cultivate a mindset of acceptance and compassion, allowing us to release the harmful effects of judgment and negative emotions.

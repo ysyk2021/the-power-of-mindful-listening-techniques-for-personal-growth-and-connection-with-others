@@ -1,4 +1,4 @@
-Chapter 8: Using Mindful Listening to Manage Stress and Anxiety
+Using Mindful Listening to Manage Stress and Anxiety
 ===============================================================
 
 In this chapter, we will explore how mindful listening can be a powerful tool for managing stress and anxiety. By cultivating present-moment awareness and empathy through attentive listening, we can alleviate stress and promote a sense of calm and well-being.
