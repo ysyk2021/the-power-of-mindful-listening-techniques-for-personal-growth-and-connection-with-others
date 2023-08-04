@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful listening for personal growth and connection with others](chapter-1-2.md)
 - [Chapter 1: Understanding Mindful Listening](chapter-2.md)
   - [Definition and benefits of mindful listening](chapter-2-1.md)
