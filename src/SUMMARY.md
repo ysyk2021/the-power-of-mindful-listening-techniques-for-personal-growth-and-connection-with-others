@@ -35,3 +35,4 @@
   - [Developing empathy and compassion towards others](chapter-9-2.md)
   - [Healing and repairing relationships through mindful listening](chapter-9-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
