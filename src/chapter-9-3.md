@@ -49,4 +49,3 @@ To sustain mindful listening in the relationship, try the following strategies:
 
 By applying mindful listening techniques to heal and repair damaged relationships, we can create a stronger foundation for deeper connection and growth. With effort and commitment, even the most challenging relationships can be transformed into sources of love, support, and personal growth.
 
-
