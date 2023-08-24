@@ -1,5 +1,3 @@
-Chapter 8: Cultivating Compassionate Relationships
-==================================================
 
 In this chapter, we will explore how mindfulness can help us cultivate compassionate relationships with others. By focusing our attention on the present moment and practicing empathy and compassion, we can improve our communication skills and strengthen our connections with those around us.
 

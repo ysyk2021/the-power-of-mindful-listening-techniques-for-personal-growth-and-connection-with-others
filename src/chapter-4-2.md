@@ -1,5 +1,3 @@
-Reflective Listening Exercises
-=========================================
 
 In this chapter, we will explore a variety of reflective listening exercises that can enhance your mindful listening skills. Reflective listening exercises provide opportunities to practice active engagement, empathy, and deep connection with others. By participating in these exercises, you can strengthen your ability to truly hear and understand those around you.
 

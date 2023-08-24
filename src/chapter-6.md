@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Mindful Listening
-====================================================
 
 In this chapter, we will explore common obstacles to practicing mindful listening and strategies for overcoming them. By identifying and addressing these barriers, we can sustain a regular mindful listening practice and reap the benefits of improved communication and connection with others.
 
@@ -35,5 +33,4 @@ Sustaining a regular mindful listening practice requires commitment and dedicati
 * Celebrate successes: Recognize and celebrate small successes along the way to maintain motivation and momentum.
 
 By identifying and addressing obstacles to mindful listening, and sustaining a regular practice with these strategies, we can improve our communication skills, deepen our relationships with others, and increase our overall well-being.
-
 

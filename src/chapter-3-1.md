@@ -1,5 +1,3 @@
-Techniques for Cultivating Mindfulness
-=================================================
 
 In this chapter, we will explore various techniques for cultivating mindfulness. These techniques can be practiced regularly to develop a greater sense of presence, self-awareness, and overall well-being. By incorporating these practices into our daily lives, we can harness the power of mindfulness to enhance our listening skills, foster personal growth, and deepen our connections with others.
 

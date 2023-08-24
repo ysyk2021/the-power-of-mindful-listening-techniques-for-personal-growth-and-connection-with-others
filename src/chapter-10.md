@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 Reflection on the Power of Mindful Listening
 --------------------------------------------

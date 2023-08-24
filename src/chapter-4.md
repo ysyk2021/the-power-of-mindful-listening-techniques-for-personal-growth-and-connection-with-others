@@ -1,5 +1,3 @@
-Chapter 3: Techniques and Exercises for Mindful Listening
-=========================================================
 
 In this chapter, we will explore techniques and exercises for developing mindful listening skills. By practicing these techniques and exercises regularly, we can improve our ability to listen actively and with empathy.
 

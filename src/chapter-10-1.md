@@ -1,5 +1,3 @@
-Reflection on the power of mindful listening
-===================================================================
 
 In this book, we have explored the power of mindful listening for personal growth and connection with others. We have discussed techniques and exercises for developing our mindful listening skills, strategies for cultivating a regular mindful listening practice, and the importance of developing empathy and compassion towards others.
 

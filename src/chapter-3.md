@@ -1,5 +1,3 @@
-Chapter 2: Introduction to Mindfulness
-======================================
 
 In this chapter, we will explore the concept of mindfulness and its role in developing mindful listening skills. Mindfulness is the practice of being present and fully engaged in the current moment without judgment or distraction. It can be a powerful tool for improving our communication with others and promoting personal growth and well-being.
 

@@ -1,5 +1,3 @@
-Chapter 6: Mindful Self-Care
-============================
 
 In this chapter, we will explore how mindful listening can be used for self-care to manage stress and anxiety, improve mental and physical health, and build resilience and self-compassion.
 
